@@ -1,7 +1,7 @@
 Hurr durr
 
-Yurr 
+Yurr'n eurr
 
-Yass, ... but no
+Churr the burr
 
-Why
+Abso'rr g'rr
